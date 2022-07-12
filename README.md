@@ -1,1 +1,1 @@
-Olá, sou o Bruno Bertolini!
+Olá, sou Bruno Bertolini!
